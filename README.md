@@ -14,7 +14,6 @@
 <br />优乐美：https://ebw.xyz/NA==/3f8b
 <br />卡哇伊主播人数多，观众人数也多，而且主播比较漂亮。
 <br />（大家有更好的推荐可以私聊群主）
-<br />其他的平台，没时间所以没怎么看，请自行研发好看的主播，然后去Potato群里分享，尤其是刷不起钱的兄弟，分享了才会有人录收费房的视频出来发福利。一个人能力有限，众人拾柴火焰高！
-<br />Potato群的邀请地址（要开vpn）：
-https://pt.im/joinchat/KqD2mYnyygshc21gWBnJsA
+
+
 <br />点本文下方的“ View all of README.md ” 查看全部内容
