@@ -17,3 +17,6 @@
 
 
 <br />点本文下方的“ View all of README.md ” 查看全部内容
+<br />社区app：
+<br />九九：https://aff.91porn005.me/aff/ms6X
+<br />番茄：https://97.wujiang.online/?inviteCode=PJ86KA
