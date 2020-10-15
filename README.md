@@ -1,6 +1,6 @@
-群主推荐：卡哇伊直播app： https://n6ty.xyz/3591963
-               <br /> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;备用地址①： &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; https://m0i1.xyz/3591963
-                          <br /> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;备用地址②：&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;https://fntx.xyz/3591963
+群主推荐：小奶猫直播app： https://4d2q.com/3591963
+               <br /> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;备用地址①： &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; https://a51j.com/3591963
+                          <br /> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;备用地址②：&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;https://co7a.com/3591963
 <br />主播比较多------>
 <br />172：http://1.172tui1.com/u/1492073   即小花螺，蝴蝶飞，七秒鱼
 <br />红娘：http://t.cn/Ailj6FSg  即月漫（失效，有更新的请联系群主更新）
