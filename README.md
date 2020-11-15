@@ -3,6 +3,9 @@
                           <br /> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;备用地址②：&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;https://o7fk.com/3591963
                           
 <br />成仁版美团！看片，找楼凤，寻会所，尽在颜色app（看片还送钱，看片零撸月入过万）：https://www.521aiyue.com/aff/?inviteCode=OQ1Q
+<br />
+<br />以下基本都失效了，仅以此纪念~~~~
+<br />
 <br />主播比较多------>
 <br />172：http://1.172tui1.com/u/1492073   即小花螺，蝴蝶飞，七秒鱼
 <br />红娘：http://t.cn/Ailj6FSg  即月漫（失效，有更新的请联系群主更新）
